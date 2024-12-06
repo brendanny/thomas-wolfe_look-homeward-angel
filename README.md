@@ -1,0 +1,1 @@
+This ebook has been published by [Standard Ebooks](https://standardebooks.org/ebooks/thomas-wolfe/look-homeward-angel) and code hosting transferred to the [Standard Ebooks GitHub organization](https://github.com/standardebooks/thomas-wolfe_look-homeward-angel).
